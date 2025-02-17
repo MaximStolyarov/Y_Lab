@@ -1,1 +1,1 @@
-# Y_Lab
+# Y_Lab University
